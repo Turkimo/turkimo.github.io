@@ -1,1 +1,0 @@
-# turkimo.github.io
